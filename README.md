@@ -1,3 +1,2 @@
 Braden Byrnes
-Senior Alta HS
-Alta High Robotics
+United States Army
